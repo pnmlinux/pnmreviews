@@ -16,3 +16,7 @@ https://www.youtube.com/watch?v=dMiYCxSWOac
 4-"Meme :D "{Eznix - The real PNM GNU / Linux video}
 
 https://www.youtube.com/watch?v=-WtnwcHDv3s
+
+5-PNM OS İncelemesi
+
+https://www.youtube.com/watch?v=xooUrOWY7Qg&lc=UgwoD6WjZRUD98IDr6d4AaABAg.9J406keePo89J41S1vHc7X
